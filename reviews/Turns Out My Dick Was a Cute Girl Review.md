@@ -1,6 +1,4 @@
-\~~~
-
-\# \_\_Introduction\_\_
+# Introduction
 
 Since the dawn of history man has always had one thing by his side. Not women, not nature, and not basic necessities like food and water. He had his cock and balls. A man has them from birth and they will never leave his side unless by force. 
 
@@ -10,9 +8,7 @@ Beginning serialization in March of this year "Ore no Kokan wa Bishoujo Datta no
 
 img300(https://media.discordapp.net/attachments/1023019159149367306/1023035260243558481/fire.gif)
 
-\_\_\_
-
-\# \_\_Plot\_\_
+# Plot
 
 As the title implies the manga mainly focuses on the daily antics of our protagonist and his now sentient and humanized penis who he has dubbed Chinko-chan. You would think such an outlandish premise would grow stale quickly, but the author has taken special care to ensure that he never repeats himself. 
 
@@ -28,9 +24,7 @@ The scenarios have only increased in quality with every chapter, and I have full
 
 img400(https://media.discordapp.net/attachments/1023019159149367306/1023019304444231691/haters.gif)
 
-\_\_\_
-
-\# \_\_Characters\_\_
+# Characters
 
 The author is a true master of visual characterization and understands the most nuanced levels of "show don't tell" as he proves time and time again. 
 
@@ -58,9 +52,7 @@ He never misses and every chapter brings with it new jokes and fresh ideas that 
 
 img400(https://media.discordapp.net/attachments/1023019159149367306/1023020455671640114/comedy.gif)
 
-\_\_\_
-
-\# \_\_Conclusion\_\_
+# Conclusion
 
 Talking about the art extensively is not worthwhile as you've already gotten a taste of the art through the panels I've shared. Every one of them belongs in a museum and Unichiri doubtless stands with the greats of Yusuke Murata and Takehiko Inoue when it comes to expressing emotion and detail in his art (why does he actually have a better grasp of shading than Ikemoto does in 95% of Boruto chapters?) 
 
@@ -68,4 +60,4 @@ I would like to credit @Bangtoib45 @FerrisGD and @muflantur @SixSidedShape as my
 
 img400(https://cdn.discordapp.com/attachments/1023019159149367306/1023040712759058512/fan\_kiss.gif)
 
-Hope you enjoyed the review and have a blessed day. Consider hitting like if this review impacted your day positively (or even negatively actually. Hit like either way)~~~
+Hope you enjoyed the review and have a blessed day. Consider hitting like if this review impacted your day positively (or even negatively actually. Hit like either way)
